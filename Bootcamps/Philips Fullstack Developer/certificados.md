@@ -6,3 +6,4 @@
 
 ![](https://hermes.digitalinnovation.one/certificates/cover/F6815329.jpg)
 
+![](https://hermes.digitalinnovation.one/certificates/cover/4BEE23E2.jpg)
